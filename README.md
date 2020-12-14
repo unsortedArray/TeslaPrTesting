@@ -6,9 +6,11 @@
 
 ### please add at the end of file to avoid mess and raise a PR
 
-### name
+### Muddhit
 
-### email | username
-### What do you want to make as project in the Newton School
+### Mukulbaid63
+### GithubRepoInfo Project
 
-### write your favourite 5 songs
+### Illahi,Moh moh ke dhage,.....
+
+
