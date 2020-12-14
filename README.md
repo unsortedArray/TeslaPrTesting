@@ -8,7 +8,7 @@
 
 ### name-Sourav Kumar
 
-### email-souravchiku50@gmail.com | username-sourav
+### email-souravchiku50@gmail.com | username-souravchiku
 ### What do you want to make as project in the Newton School
 ### clone of spotify
 
