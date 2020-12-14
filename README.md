@@ -6,9 +6,10 @@
 
 ### please add at the end of file to avoid mess and raise a PR
 
-### UA
+### Gaurav Purohit
 
-### Unsorted Array
-### Help kiddos
+### Gauravpurohit409
+### dsa website 
 
-### i just want to play and sleep!
+### despacito 
+
