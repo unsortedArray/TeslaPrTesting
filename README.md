@@ -6,9 +6,15 @@
 
 ### please add at the end of file to avoid mess and raise a PR
 
-### UA
+### name-Sourav Kumar
 
-### Unsorted Array
-### Help kiddos
+### email-souravchiku50@gmail.com | username-sourav
+### What do you want to make as project in the Newton School
+### clone of spotify
 
-### i just want to play and sleep!
+### write your favourite 5 songs
+1 Sweet child of mine(Guns N' Roses)
+2 The wicked game( Chris Isaak)
+3 Leaving on a jetplane(John Denver)
+4 21 guns(green day)
+5 its gonna be me(nsync)
