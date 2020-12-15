@@ -8,7 +8,6 @@
 
 ### UA
 
-
 ### Unsorted Array
 
 ### Help kiddos
@@ -16,9 +15,8 @@
 
 ### i just want to play and sleep!
 
+### jk
 
-jk
-=======
 ### Gaurav Purohit
 
 ### Gauravpurohit409
@@ -42,8 +40,6 @@ jk
 ### kakon
 
 ### Muddhit
-
-
 
 ### Mukulbaid63
 ### GithubRepoInfo Project
@@ -77,4 +73,7 @@ jk
 ### I want to sleep sir!
 ### Job + Paisa
 
-
+### Akhilesh Patidar (Name)
+### AKHILESHPATIDAR01 (UserName)
+### want to learn as many things possible (What i want to complete in NS)
+### Ek Zindagi(from Angrezi Medium) ,Lallantap (Ikka), Angaar(Ikka), Meri Aashiqui (Jubin Nautiyal), Aajkal Tere Mere Pyar Ke Charche(Sanam).
