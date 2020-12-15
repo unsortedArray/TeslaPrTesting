@@ -6,15 +6,15 @@
 
 ### please add at the end of file to avoid mess and raise a PR
 
-### UA
+### Gooduru Vineeth
 
 
-### Unsorted Array
-### Help kiddos
+### Gooduru Vineeth
+### writes code and have fun
 
-### i just want to play and sleep!
+### i just want to rich
 
-### Muddhit
+### mure mure peg
 
 ### Mukulbaid63
 ### GithubRepoInfo Project
