@@ -7,8 +7,5 @@
 ### please add at the end of file to avoid mess and raise a PR
 
 ### Kumar Shanu
-
 ### Make chat app
-### Riding bikes
-
-### Playing badminton
+### Kun Faya Kun
