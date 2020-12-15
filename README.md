@@ -22,5 +22,9 @@
 
 ### Illahi,Moh moh ke dhage,.....
 
-### Shriyash
+
+### Shriyash 
+### I love people who aren't selfish
+### According to me problems are sign of life, they make us belive that we are living.
+
 
