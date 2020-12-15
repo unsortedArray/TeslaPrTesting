@@ -20,4 +20,8 @@
 ### GithubRepoInfo Project
 
 ### Illahi,Moh moh ke dhage,.....
-### Avinay Mehta Its done.
+
+## Avinay Mehta
+### Goal-Become good Full Stack Developer.
+### Currently trying to make good PR
+### Hope this one will get accepted
