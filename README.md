@@ -14,10 +14,10 @@
 
 ### i just want to play and sleep!
 
-### Muddhit
+### Kshitij Dhande
 
-### Mukulbaid63
-### GithubRepoInfo Project
-
-### Illahi,Moh moh ke dhage,.....
+### Don't stop believing 
+### can't stop falling in love with you
+### Lose yourself
+### Where we go...
 
