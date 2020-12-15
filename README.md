@@ -62,10 +62,13 @@ jk
 
 
 
-
 ### Kshitinjay Kumar
 ### Accident Detection System using IOT
 ### Old School,47,
 ### I want to sleep sir!
 ### Job + Paisa
 
+## Avinay Mehta
+### Goal-Become good Full Stack Developer.
+### Currently trying to make good PR
+### Hope this one will get accepted
