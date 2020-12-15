@@ -14,7 +14,7 @@
 
 ### i just want to play and sleep!
 
-### Prabal Shetty
+### Prabal A Shetty
 
 ### prabal17shetty
 ### GithubRepoInfo Project
