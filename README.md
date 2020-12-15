@@ -14,10 +14,8 @@
 
 ### i just want to play and sleep!
 
-### Muddhit
-
-### Mukulbaid63
-### GithubRepoInfo Project
-
-### Illahi,Moh moh ke dhage,.....
+### Aditi Namdev
+### ADITINAMDEO13
+### To learn different technologies.
+### 1 2 3 4 5
 
