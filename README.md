@@ -6,18 +6,9 @@
 
 ### please add at the end of file to avoid mess and raise a PR
 
-### UA
+### jyoti bharti
 
-
-### Unsorted Array
-### Help kiddos
+### project name -ERP
+### jai ho
 
 ### i just want to play and sleep!
-
-### Muddhit
-
-### Mukulbaid63
-### GithubRepoInfo Project
-
-### Illahi,Moh moh ke dhage,.....
-
