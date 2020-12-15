@@ -22,6 +22,6 @@
 ### Illahi,Moh moh ke dhage,.....
 
 ### Onkar Solat has been here
-### I just ant to code and listen to music
+### I just want to code and listen to music
 ### memories, ishaaron isharon mein 
 
