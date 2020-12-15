@@ -14,10 +14,11 @@
 
 ### i just want to play and sleep!
 
-### Muddhit
+### Deepak
 
-### Mukulbaid63
-### GithubRepoInfo Project
+### Deepak484
+### web development
+### phir se udd chala
 
 ### Illahi,Moh moh ke dhage,.....
 
