@@ -51,6 +51,13 @@ jk
 ### Illahi,Moh moh ke dhage,.....
 
 
+###Try hard Aman
+
+###Explain question properly and done it by teminal!
+
+
+
+
 ### everything that shoots the mood
 
 
@@ -68,4 +75,5 @@ jk
 ### Old School,47,
 ### I want to sleep sir!
 ### Job + Paisa
+
 
