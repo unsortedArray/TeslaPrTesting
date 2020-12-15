@@ -1,12 +1,6 @@
 # TeslaPrTesting
 
-## If you are here it means you have done quite well!
-
-### Now the format of editing this file is
-
-### please add at the end of file to avoid mess and raise a PR
-
-### Gooduru Vineeth
+### GV
 
 
 ### Gooduru Vineeth
@@ -14,10 +8,9 @@
 
 ### i just want to rich
 
-### mure mure peg
+### Tim hi ana
 
-### Mukulbaid63
-### GithubRepoInfo Project
+### Aaj Ki Party
 
-### Illahi,Moh moh ke dhage,.....
+### Afgan Jalebi
 
