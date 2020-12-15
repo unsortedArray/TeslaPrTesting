@@ -80,7 +80,7 @@ jk
 ----------------------------------------------------------------------------------------
 
 ### Name-- Rahul Kumar.
-### Currently working Final Year Student.
+### Currently  Final Year Student.
 ### skills. 
 ## Python.
 ## java.
