@@ -20,5 +20,9 @@
 ### GithubRepoInfo Project
 
 ### Illahi,Moh moh ke dhage,.....
-Try hard Aman
+
+###Try hard Aman
+
+###Explain question properly and done it by teminal!
+
 
