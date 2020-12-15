@@ -6,9 +6,9 @@
 
 ### please add at the end of file to avoid mess and raise a PR
 
-### UA
+### UnsortedArray
 
-### Unsorted Array
-### Help kiddos
+### Sandesh Suresh
+### Eat code sleep return
 
 ### i just want to play and sleep!
