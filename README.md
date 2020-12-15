@@ -78,3 +78,15 @@ jk
 ### Job + Paisa
 
 
+
+### Prabal A Shetty
+### prabal17shetty
+### Baite Baite kya karein karna hain kuch kaam, shuru karein Git leke torvalds ka naam
+### Aao Ge Tum Kabhi, Choo Loo
+
+
+### Sajal Chakraborty
+### The Life is so beautiful, you have everything you want.
+### Okay now your dream breaks go start fixing the bugs again
+### LifeOfProgrammers
+
