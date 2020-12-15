@@ -59,6 +59,15 @@ jk
 ### Baite Baite kya karein karna hain kuch kaam, shuru karein Git leke torvalds ka naam
 ### Aao Ge Tum Kabhi, Choo Loo
 
+
+
+
+### Kshitinjay Kumar
+### Accident Detection System using IOT
+### Old School,47,
+### I want to sleep sir!
+### Job + Paisa
+
 ## Avinay Mehta
 ### Goal-Become good Full Stack Developer.
 ### Currently trying to make good PR
