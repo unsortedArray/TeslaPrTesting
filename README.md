@@ -12,12 +12,8 @@
 ### Unsorted Array
 ### Help kiddos
 
-### i just want to play and sleep!
+### i just want to play and sleep and sleep
 
-### Muddhit
-
-### Mukulbaid63
-### GithubRepoInfo Project
-
-### Illahi,Moh moh ke dhage,.....
+###Kshitinjay Kumar
+###old School
 
