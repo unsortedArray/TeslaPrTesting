@@ -9,7 +9,7 @@
 ### UA
 
 
-### Unsorted Array
+### Unsorted Array 
 ### Help kiddos
 
 ### i just want to play and sleep!
@@ -21,3 +21,8 @@
 
 ### Illahi,Moh moh ke dhage,.....
 
+### Akhilesh Patidar (Name)
+
+### AKHILESHPATIDAR01 (UserName)
+### want to learn as many things possible (What i want to complete in NS)
+### Ek Zindagi(from Angrezi Medium) ,Lallantap (Ikka), Angaar(Ikka), Meri Aashiqui (Jubin Nautiyal), Aajkal Tere Mere Pyar Ke Charche(Sanam).
