@@ -1,13 +1,14 @@
 # TeslaPrTesting
 
-## If you are here ?
-### Now the format of editing this file is
+## Hey this is my first pr for Practising. 
+### India
 
-### please add at the end of file to avoid mess and raise a PR
+### Rahul Kumar
+### E-mail:kumarrahul31199@gmail.com
 
-### UA
+### trying to creating my pr more prefect.
 
-### Rahul
-### Help 
+### 
+### 
 
-### i just want to play and read!
+### i just want to watch cricket match and reading magzine.
