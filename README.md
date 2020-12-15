@@ -20,4 +20,5 @@
 ### GithubRepoInfo Project
 
 ### Illahi,Moh moh ke dhage,.....
+###Explain question properly and done it by teminal!
 
