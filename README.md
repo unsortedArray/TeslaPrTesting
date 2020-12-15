@@ -77,7 +77,7 @@ jk
 ### I want to sleep sir!
 ### Job + Paisa
 
-
+----------------------------------------------------------------------------------------
 
 ### Name-- Rahul Kumar.
 ### Currently working Final Year Student.
@@ -86,7 +86,7 @@ jk
 ## java.
 ## DSA.
 ## Data Science.
-### Hoppies.
+### Hobbies.
 ## Reading Magazine.
 ## Reading NewsPaper
 ## Reading Novel
