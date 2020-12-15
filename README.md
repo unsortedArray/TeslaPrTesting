@@ -7,8 +7,15 @@
 ### E-mail:kumarrahul31199@gmail.com
 
 ### trying to creating my pr more prefect.
+### Final year Engineering Student
+### skills:
+## Python,java,DSA Data science
+## project: Exploring FoursquareAPI.
+### Hoppies:
+## Reading newsPaper,Magazine,
+## Better Communicator
 
 ### 
 ### 
 
-### i just want to watch cricket match and reading magzine.
+### Doing hardwork.
