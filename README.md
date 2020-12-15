@@ -14,10 +14,10 @@
 
 ### i just want to play and sleep!
 
-### Muddhit
+### Prabal Shetty
 
-### Mukulbaid63
+### prabal17shetty
 ### GithubRepoInfo Project
 
-### Illahi,Moh moh ke dhage,.....
+### Illahi,Moh moh ke dhage,MunniBadnaam
 
