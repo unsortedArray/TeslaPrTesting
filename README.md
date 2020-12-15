@@ -78,3 +78,26 @@ jk
 ### Job + Paisa
 
 
+----------------------------------------------------------------------------------------
+
+### Name-- Rahul Kumar.
+### Currently  Final Year Student.
+### skills. 
+## Python.
+## java.
+## DSA.
+## Data Science.
+### Hobbies.
+## Reading Magazine.
+## Reading NewsPaper
+## Reading Novel
+
+### Favourite Players
+## KL Rahul
+## Virat Kohli
+## Srayesh Ayer
+### Ms dhoni
+
+
+
+
