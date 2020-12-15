@@ -6,9 +6,9 @@
 
 ### please add at the end of file to avoid mess and raise a PR
 
-### UA
+### Kumar Shanu
 
-### Unsorted Array
-### Help kiddos
+### Make chat app
+### Riding bikes
 
-### i just want to play and sleep!
+### Playing badminton
