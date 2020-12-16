@@ -12,9 +12,7 @@
 ### i just want to play and sleep!
 
 ### Ashwani
-
-### Ashwani436
+### ashwani436
 ### GithubRepoInfo Project
-
 ### Illahi,Moh moh ke dhage,.....
 
