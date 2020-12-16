@@ -9,15 +9,10 @@
 ### UA
 
 
-### Unsorted Array
-### Help kiddos
+### Kamlesh vyas
+### Stockmarket App
 
-### i just want to play and sleep!
+### Try to solve DSA question
 
-### Muddhit
-
-### Mukulbaid63
-### GithubRepoInfo Project
-
-### Teri mitti me
+### Teri mitti me,oh mere dil ke chain
 
