@@ -20,4 +20,4 @@
 ### GithubRepoInfo Project
 
 ### Illahi,Moh moh ke dhage,.....
-###Adhistha Swain
+###Adhistha is trying hard to learn , and here is my first PR
