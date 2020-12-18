@@ -14,11 +14,11 @@
 
 ### i just want to play and sleep!
 
-### Deepak rajwar
+### Deepak Rajwar
 
 ### Deepak484
-### web development and coding
+### web development and coding and technology
 ### phir se udd chala
 
-### piasa and ijjat
+### Bohot sara paisa and ijjat
 
