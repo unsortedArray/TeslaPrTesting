@@ -78,7 +78,7 @@ jk
 ### Job + Paisa
 
 
-#### sameer joshi
+#### Sameer Joshi
 #### joshisameer343
 #### circles, fitoor
 
