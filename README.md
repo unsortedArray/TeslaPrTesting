@@ -77,4 +77,12 @@ jk
 ### I want to sleep sir!
 ### Job + Paisa
 
+### Albin Saj Chalissery
+### Fusion Reality
+### Aadyam Thammil,Thaarame Thaarame,Natpe Thunai - Pallikoodam
+### Job + cash + travel + food
 
+### Albin Saj Chalissery
+### Fusion Reality
+### Aadyam Thammil,Thaarame Thaarame,Natpe Thunai - Pallikoodam
+### Job + cash + travel + food
